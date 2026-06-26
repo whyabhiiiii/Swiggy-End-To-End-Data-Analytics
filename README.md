@@ -1369,7 +1369,7 @@ The data proves that Swiggy’s main challenge is **retention**, not acquisition
 Feel free to connect with me for feedback, collaborations, or internships:
 
 - 📧 **Email:** [workwithabhi19@gmail.com]  
-- 💼 **LinkedIn:** [www.linkedin.com/in/abhishek-kumar]
+- 💼 **LinkedIn:** [https://www.linkedin.com/in/abhishekk19/]
 
 ---
 
